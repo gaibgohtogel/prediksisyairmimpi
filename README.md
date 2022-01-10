@@ -1,2 +1,0 @@
-# prediksisyairmimpi
-prediksi syair mimpi
